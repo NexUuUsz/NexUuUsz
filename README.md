@@ -1,0 +1,8 @@
+- Im Nexus woohoo 🥳
+- Uhh..im a he/him, Holey Moley! 😨
+- And idk 😔
+- o I like music yuh, 🎧
+- And..uhh... Erm, 😭
+- F★ck life ❤
+- Im gay. (no joke) 
+- 
